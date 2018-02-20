@@ -1,6 +1,7 @@
 Cléo Pires
-Juju Salimene
+Juju Gostosa
 Juliana Paes
+Scarlet
 
 
 
